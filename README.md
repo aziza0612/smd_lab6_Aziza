@@ -1,1 +1,0 @@
-# smd_lab6_Aziza
